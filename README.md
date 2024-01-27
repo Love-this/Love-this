@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Love-this
+- 👀 I’m interested in a peaceful utopia world.
+- 🌱 I’m currently learning Data analytics.
+- 💞️ I’m looking to collaborate on tech talks,projects.
+- 📫 How to reach me: Upwork > Ridwanullahi Abdulsalam
+- 😄 Pronouns: He
+- ⚡ Fun fact: I am a lowly perfectionist.
